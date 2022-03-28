@@ -1,0 +1,1 @@
+[Patika.dev linkim için tıklayınız.](https://app.patika.dev/cagatayyd)
